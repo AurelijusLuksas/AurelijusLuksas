@@ -18,7 +18,7 @@
 ### About me.
 - 🔭 Student at Vilnius University :grin:
 - 👯 20 years old :wink:
-- 💬 Casul gym-goer :smile: 
+- 💬 Casual gym-goer :smile: 
 - ⚡ Fun fact: I've read all Harry Potter books :raised_hands:
 
 
